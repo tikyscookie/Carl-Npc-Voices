@@ -1,0 +1,3 @@
+# Carl-Npc-Voices
+Credits to GroovyDominos for making npcs are becoming smart.
+WARNING: THERE IS SWEARING AND SOME SUS CHOICE OF WORDS THAT CAN BE DISTURBING.. PLEASE DON'T DOWNLOAD UNLESS YOU ARE 13+
